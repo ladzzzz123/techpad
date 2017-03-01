@@ -1,0 +1,2 @@
+# techpad
+collective venture capital 
